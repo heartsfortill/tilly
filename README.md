@@ -1,4 +1,4 @@
-[![Tumblr-l-502151729120468.gif](https://i.postimg.cc/sDsqzPWk/Tumblr-l-502151729120468.gif)](https://postimg.cc/vD23LV3h)
+[![Up-divider.gif](https://i.postimg.cc/2SyDRpbs/Up-divider.gif)](https://postimg.cc/gnC58TKs)
 
 ʚ♡ɞ ʚ♡ɞ ʚ♡ɞ ʚ♡ɞ ʚ♡ɞ ʚ♡ɞ ʚ♡ɞ
 
@@ -13,5 +13,8 @@
 
 𝐇𝐞 / 𝐇𝐢𝐦  –  𝟐𝟏 𝐎𝐜𝐭  ! !  𝐟𝐭𝐦 · 𝐎𝐦𝐧𝐢𝐬𝐞𝐱𝐮𝐚𝐥
 
+[Rentry](https://rentry.co/47fb4npm)
+
 ʚ♡ɞ ʚ♡ɞ ʚ♡ɞ ʚ♡ɞ ʚ♡ɞ ʚ♡ɞ ʚ♡ɞ
-[![Tumblr-l-502149181324545.gif](https://i.postimg.cc/K8MM5WcK/Tumblr-l-502149181324545.gif)](https://postimg.cc/TKT1dCDG)
+
+[![Tumblr-l-502149181324545-(1).gif](https://i.postimg.cc/qR3JPPYj/Tumblr-l-502149181324545-(1).gif)](https://postimg.cc/MMzJRFzQ)
